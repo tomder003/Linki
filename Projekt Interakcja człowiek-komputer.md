@@ -18,3 +18,4 @@ https://worktime.pl/pl/blog/ergonomia-stanowiska-pracy<br>
 http://zorganizowani.com/produktywnosc/zarzadzanie-czasem-organizacja-czasu/<br>
 https://www.komputerswiat.pl/recenzje/sprzet/laptopy/w-podwojnej-roli-test-urzadzen-2w1-z-windows-10/hysnjhl<br>
 https://pl.dreamstime.com/obraz-royalty-free-komputer-szcz%C4%99%C5%9Bliwy-image11038636<br>
+https://pixabay.com/pl/photos/%C5%BAr%C3%B3d%C5%82o-g%C3%B3ra-%C5%82%C4%85ka-alm-kamienie-rock-2676322/<br>
